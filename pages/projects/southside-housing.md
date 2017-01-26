@@ -43,6 +43,7 @@ We purchased 26 tablets for Southside Housing Association to use within our cour
 
 * 14 Learning programmes promoted and delivered to communities: October 2016
 Currently Southside Housing Association have delivered 3 digital Inclusion Programmes.  The Glasgoe and Craigton Integration Network deliver 6 Esol courses and 2 weekly Homework Clubs for younger children using the Smart Board.  Nan Mackay deliver 2 Digital Inclusion classes per week.  SHA will run 2 more courses over the summer, THe ESOl calsses run by GCIN and Digital Classes run by Nan Mackay are continous programme of learning.
+TEST
 * Community bases utilised informally/ad-hoc by local people: October 2016
 All our community bases are used by tenants and members of the local community, 5 Coffee afternoons and one Arts and Crafts workshop, one Knitting Club, throughout our bases, are self run by participants.  local residents are also offered the space for personal use, such as parties,lage gathering wiht friends and family.
 ### Planned outputs and outcomes
